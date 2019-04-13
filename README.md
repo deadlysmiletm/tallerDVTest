@@ -43,3 +43,46 @@ tablas | no
 es | genial????
 
 [:laughing::flushed::stuck_out_tongue_winking_eye: Hay emojis](https://github.com/ikatyang/emoji-cheat-sheet/blob/master/README.md)
+
+
+Archivo editado editadamente 
+da
+sda
+sdasddadad
+
+Puedo | poner
+------------ | -------------
+tablas | no
+es | genial????
+
+[:laughing::flushed::stuck_out_tongue_winking_eye: Hay emojis](https://github.com/ikatyang/emoji-cheat-sheet/blob/master/README.md)
+
+Puedo | poner
+------------ | -------------
+tablas | no
+es | genial????
+
+[:laughing::flushed::stuck_out_tongue_winking_eye: Hay emojis](https://github.com/ikatyang/emoji-cheat-sheet/blob/master/README.md)
+
+Puedo | poner
+------------ | -------------
+tablas | no
+es | genial????
+
+[:laughing::flushed::stuck_out_tongue_winking_eye: Hay emojis](https://github.com/ikatyang/emoji-cheat-sheet/blob/master/README.md)
+
+Puedo | poner
+------------ | -------------
+tablas | no
+es | genial????
+
+[:laughing::flushed::stuck_out_tongue_winking_eye: Hay emojis](https://github.com/ikatyang/emoji-cheat-sheet/blob/master/README.md)
+
+Puedo | poner
+------------ | -------------
+tablas | no
+es | genial????
+
+[:laughing::flushed::stuck_out_tongue_winking_eye: Hay emojis](https://github.com/ikatyang/emoji-cheat-sheet/blob/master/README.md)
+
+
